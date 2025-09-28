@@ -1,1 +1,0 @@
-# shiretomi.github.io
